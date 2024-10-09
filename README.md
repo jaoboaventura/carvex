@@ -1,4 +1,4 @@
-## Carvex | Rumo à Eficiência, Juntos!
+## Carvex | Rumo à eficiência, juntos!
 
 ### RESUMO
 
